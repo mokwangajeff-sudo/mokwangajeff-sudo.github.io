@@ -1,7 +1,7 @@
 # Hi, I'm Mokwang'a Jeff 👋
 
 **Clinical Officer | Developer | Tech Enthusiast**
-📍 Kakamega, Kenya
+📍 Kisii, Kenya
 
 Welcome to my portfolio!
 
